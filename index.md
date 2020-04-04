@@ -1,3 +1,3 @@
 ## Recipes
 
-* [Mum's Pie Recipe](pie.md)
+* [Mum's Pie Recipe](recipes/pie.md)
