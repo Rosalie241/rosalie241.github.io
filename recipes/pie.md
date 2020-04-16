@@ -24,12 +24,12 @@
 
 ### Directions
 * Put in bowl the following(through the sieve & in this order):
-   * salt
-   * white castor sugar
-   * flour
-   * baking powder
-   * egg
-   * margarine
+   * pinch of salt
+   * 200 grams of white castor sugar
+   * 400 grams of all purpose flour
+   * 15 grams of baking powder
+   * 1 egg
+   * 200 grams of margarine
 
 * Knead in the bowl until the dough becomes one dough ball
 * Put some flower on the work surface, then take the dough ball and place it on the work surface
