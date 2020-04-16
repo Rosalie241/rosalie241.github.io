@@ -32,7 +32,7 @@
    * 200 grams of margarine
 
 * Knead in the bowl until the dough becomes one dough ball
-* Put some flower on the work surface, then take the dough ball and place it on the work surface
+* Put some flour on the work surface, then take the dough ball and place it on the work surface
 * Cut the dough ball in 2 pieces of equal size, then move one of the pieces to the side
 * Put some flour on the roller pin and roll one piece out until it's larger than the pie tray
 * Move the dough onto the pie tray and remove the excess dough
